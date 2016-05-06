@@ -1,2 +1,1 @@
-# maxxizmainJS
-ok nih
+anu blg
